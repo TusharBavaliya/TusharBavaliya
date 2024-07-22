@@ -1,1 +1,1 @@
-- 👋 Hi, I’m TusharBavaliya
+👋 Hi, I’m Tushar Bavaliya 
